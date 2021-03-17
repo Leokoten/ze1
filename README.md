@@ -1,2 +1,2 @@
-# ZÉ É GAYZAO PRA CARALHO MANO QUE MULEKE GAY VEI
-### serio mano ele é muito gay
+# Zé puta muleque lindo mano sério, ele é foda
+### Zé tu é foda, nao estou sendo irônico
